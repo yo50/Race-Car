@@ -1,4 +1,4 @@
-![Race Car Album Artwork](https://is4-ssl.mzstatic.com/image/thumb/Music113/v4/de/b6/db/deb6db8e-6ca2-4a1c-625c-e00cfab209cb/source/200x200bb.jpg)
+![Race Car Album Artwork](https://distrokid.imgix.net/http%3A//distrokid.com/hyperfollow/art/yo50/race-car?w=800&s=b4c778e1b932fa37e9870fa3f5d7d329)
 
 # Race Car
 
